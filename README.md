@@ -1,2 +1,0 @@
-# omaekarepo
-eka repository perkele.
